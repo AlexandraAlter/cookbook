@@ -23,4 +23,4 @@
 6. Mix well with the bicarbonate solution
 7. Leave to stand for 20 minutes
 8. Place tablespoons onto greased trays
-9. Bake at 160 degrees celcius for 10 minutes
+9. Bake at 170 degrees celcius for 10 minutes
