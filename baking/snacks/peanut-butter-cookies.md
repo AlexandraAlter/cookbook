@@ -5,7 +5,7 @@
 * 200g peanut butter
 * 100g sugar
 * 1 egg
-* (optional, experimental, replace sugar) 75g oats
+* (optional, experimental) 50g oats
 
 ## Instructions
 
