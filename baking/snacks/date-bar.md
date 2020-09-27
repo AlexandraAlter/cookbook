@@ -21,4 +21,4 @@
 6. Spread half in the bottom of a greased oblong tin
 7. Spread the dates over this layer
 8. Sprinkle the rest of the mixture over and pat it down
-9. Bake at 180 degrees C for 30m
+9. Bake at 160 degrees C for 30m
