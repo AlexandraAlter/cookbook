@@ -15,4 +15,4 @@
 4. Form into a 3.8cm diameter sausage and roll in greaseproof paper
 5. Place in fridge for 15 minutes, or until firm
 6. Cut roll into rounds 0.6cm thick
-7. Bake at 180 degrees C for 15-20 minutes
+7. Bake at 160 degrees C for 15-20 minutes
