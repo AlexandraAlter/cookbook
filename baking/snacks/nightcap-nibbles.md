@@ -18,4 +18,5 @@
 3. Melt the margerine and add to the mixture to make a soft dough
 4. Roll inside a strip of greaseproof paper, chill, and cut into rounds
 4a. Place spoonfuls out onto trays, instead
-5. Bake at 180 degrees C for 10 minutes
+5. Bake at 180 degrees C for 10m
+6. Remove from trays immediately
