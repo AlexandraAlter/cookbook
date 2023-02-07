@@ -10,8 +10,8 @@ Lazy, but filling and cheap!
 
 ## Ingredients
 
-* 1.25 cups dry black beans, rinsed (1 US cup)
-* 1.25 cups dry brown rice, rinsed (1 US cup)
+* 0.83 cups dry black beans, rinsed (1 US cup)
+* 0.83 cups dry brown rice, rinsed (1 US cup)
 * 1 tblsp neutral oil
 * 1 medium red onion, diced
 * 0.5 tsp table salt
